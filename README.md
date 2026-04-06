@@ -35,7 +35,6 @@ I am interested in improving my skills in construction planning, scheduling, and
 
 ## 📌 Experience
 Site Engineer – Civil Construction Projects  
-(Detail can be added later if you want)
 
 ---
 
