@@ -40,5 +40,5 @@ Site Engineer – Civil Construction Projects
 ---
 
 ## 📫 Contact
-- Email: your@email.com
-- LinkedIn: add here
+- Email: sbangshi111@email.com
+- LinkedIn: www.linkedin.com/in/sanju-bangshi-thakuri-97a8601b7
